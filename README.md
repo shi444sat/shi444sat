@@ -1,4 +1,5 @@
 # 💫 About Me:
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7C74FF&width=435&lines=I'm+Shivesh+Satyam) <br/>
 < /dev/null before dishonour ./>
 
 
